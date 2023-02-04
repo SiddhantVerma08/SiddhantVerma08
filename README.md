@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **siddhant_08@outlook.com**
 
-- ⚡ Fun fact **I love to watch Movies/Cooking/Traveling**
+- ⚡ Fun fact **I love to watch Movies/Music/Traveling**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
