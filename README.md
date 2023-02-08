@@ -18,7 +18,6 @@
 
 - ⚡ Fun fact **I love to watch Movies/Music/Traveling**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/14C6WsC4LUh0iPORv-EKwe_HazL6qw-45/view?usp=share_link](https://drive.google.com/file/d/14C6WsC4LUh0iPORv-EKwe_HazL6qw-45/view?usp=share_link)
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
