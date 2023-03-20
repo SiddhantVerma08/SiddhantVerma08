@@ -10,7 +10,7 @@
 
 - 🔭 I’m currently working as **Web Developer**
 
-- 🌱 I’m currently learning **JavaScript, React**
+- 🌱 I’m currently learning **JavaScript, React JS**
 
 - 💬 Ask me about **Python, JavaScript**
 
