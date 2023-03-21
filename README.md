@@ -10,13 +10,13 @@
 
 - 🔭 I’m currently working as **Web Developer**
 
-- 🌱 I’m currently learning **JavaScript, React JS**
+- 🌱 I’m currently learning **JavaScript, React JS** 
 
 - 💬 Ask me about **Python, JavaScript**
 
 - 📫 How to reach me **siddhant_08@outlook.com**
 
-- ⚡ Fun fact **I love to watch Movies/Music/Traveling**
+- ⚡ Fun fact **I love to watch Reading/Music/Traveling**
 
 
 <h3 align="left">Connect with me:</h3>
