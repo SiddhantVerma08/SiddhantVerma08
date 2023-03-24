@@ -12,7 +12,7 @@
 
 - 🌱 I’m currently learning **JavaScript, React JS** 
 
-- 💬 Ask me about **Python, JavaScript**
+- 💬 Ask me about **Python, JavaScript, React JS**
 
 - 📫 How to reach me **siddhant_08@outlook.com**
 
