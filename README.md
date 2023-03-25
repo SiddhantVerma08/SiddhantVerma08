@@ -16,7 +16,7 @@
 
 - 📫 How to reach me **siddhant_08@outlook.com**
 
-- ⚡ Fun fact **I love to Yoga/Music/Traveling**
+- ⚡ Fun fact **I love to Yoga/Music/Travel**
 
 
 <h3 align="left">Connect with me:</h3>
